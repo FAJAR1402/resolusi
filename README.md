@@ -1,0 +1,2 @@
+# resolusi
+Untuk rekcana kedepan
