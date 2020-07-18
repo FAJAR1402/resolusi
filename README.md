@@ -1,2 +1,2 @@
 # resolusi
-Untuk rekcana kedepan
+Untuk rencana kedepan
